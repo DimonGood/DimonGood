@@ -1,3 +1,3 @@
 Hi im DimonGood
-The proeckt made by DimonGood
+The project made by DimonGood
 
